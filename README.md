@@ -1,1 +1,0 @@
-While it's possible to obtain a free domain name, there are some potential drawbacks to consider. Free domains may come with limitations such as fewer features, less customization options, or restrictions on transferring or monetizing the domain. Additionally, free domains may not always offer the same level of support or reliability as paid options.
